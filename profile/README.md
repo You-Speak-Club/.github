@@ -24,7 +24,7 @@ At "You Speak" Club, we specialize in helping test-takers master the **new speak
 ### 🤝 Let's Connect:
 
 - **Website:** [YouSpeak.uz](http://youspeak.uz/)
-- **Email:**  contact@youspeak.uz
+- **Email:**  zohidjonmarufov2008@gmail.com
 
 ---
 
